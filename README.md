@@ -1,4 +1,4 @@
-## Hi there! Welcome to my Github profil, I'm Karolay Kethleen!
+## Hi there! Welcome to my Github profile, I'm Karolay Kethleen!
 
 <p> <samp> I love technology and how it can transform people's lives. <br>Because this, I'm computing, science, innovation, pet and tech lover.  🐱‍💻❤ </p> 
 
